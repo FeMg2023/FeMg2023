@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft and write code.
 - 🌱 I’m currently learning the Unity Game Engine, Maths and English.
 - 💞️ I’m looking to collaborate on friends.
-- 📫 How to reach me? Call me at email:Fe2022Window@outlook.com
+- 📫 How to reach me? Call me at email:Fe_2022@163.com.
 - 🪐 I'm the one of the Middle School's students. So just be polite with me.
 
 <!---
